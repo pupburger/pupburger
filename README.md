@@ -3,7 +3,10 @@
   <img src="https://komarev.com/ghpvc/?username=FerretSwirlzie1s&label=(°ヮ°)&color=7aa0d3&style=plastic"/>
 </p>
 
+
 <div align="center">
+
+${\color{#7aa0d3}\textsf{ㅤㅤ❝ㅤ𝕀 ㅤ𝘢𝘮ㅤ 𝒎𝒚 }}$ ${\color{#2a3d59}\textsf{ㅤ𝕖𝐧𝐞m͟y͟ }}$ ${\color{#7aa0d3}\textsf{ㅤㅤ𝒂𝐧𝐝 ㅤო𝘺}}$ ${\color{#a6d7e3}\textsf{ㅤ𝙛𝐫𝕚𝔢n͟d͟ㅤ❞}}$
 
 
 
